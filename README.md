@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sippery
+- 👀 I’m interested in skiing and games
+- 🌱 I’m currently learning java
+- 💞️ I’m looking to collaborate on nothing don't reach out
+- 📫 How to reach me don't
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I have a dog
