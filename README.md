@@ -2,6 +2,6 @@
 - 👀 I’m interested in skiing and games
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on nothing don't reach out
-- 📫 How to reach me don't
+- 📫 How to reach me: don't (or at https://codepen.io/sippery)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I have a dog
